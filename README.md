@@ -46,7 +46,7 @@ _Description of  second project._
 ## 📬 Contact
 
 - **Email:** chesneym111@gmail.com
-- **LinkedIn:** https:/www.linkedin.com/in/chesney-macdonald-a1b587319
+- **LinkedIn:** https://www.linkedin.com/in/chesney-macdonald-a1b587319
 
 ---
 
